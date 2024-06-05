@@ -1,1 +1,3 @@
 # git_test
+
+I am learning how to use git and I am exhausted but I really enjoy typing so this is my favorite part so far. I wonder how much Tanner will type in this amount of time. I'm getting a new treadmill on Saturday and I'm pretty excited about it. I'm getting pretty tired now and my stomach is not feeling too hot. I'm pregnant, did I tell you that? Aw thank you I appreciate the congratulations. oh he is looking now. i need to go. 
